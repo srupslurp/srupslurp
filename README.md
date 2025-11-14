@@ -1,4 +1,5 @@
-![download](https://github.com/user-attachments/assets/7bd301b2-58d1-4e4d-b6c2-799beae244d1)
+![🎞️](https://github.com/user-attachments/assets/311766c5-d14e-45a9-9eff-f6db489d51b3)
+
 
 HI HI HI!!! 
 welcome to my gh!!!
@@ -22,15 +23,11 @@ STRAWPAGE(S)!!
 - https://srupslurp.straw.page
 - https://yaaayquestions.straw.page 
 
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile) 
 
-
-
-![b37f8f8fdf0b515b57194864dd3fa728](https://github.com/user-attachments/assets/f2b2fc7d-ea6f-4bf2-b3ea-07c81bd2778e)
 
 
 - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
-
-- i am VERY verbal and talkitive when i get close with people !! but sometimes my english is LIMITED. expect spelling errors/mistakes when im typing very fast...i may take awhile to type things! sorry!
 
 - C+H is FULLY allowed! but be mindful when i have dniuf in my name i probably don't want to socialise with people idk! (ik i spelt that wrong i can't be botherd fixing it-)
 
