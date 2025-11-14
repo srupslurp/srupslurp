@@ -1,6 +1,4 @@
-![download (8)](https://github.com/user-attachments/assets/7687209f-4024-4f77-9a08-a0e690197e9d)
-![🎞️](https://github.com/user-attachments/assets/311766c5-d14e-45a9-9eff-f6db489d51b3)
-
+![Teen Spirit_      -            ⇨PART ONE_ people are strange !](https://github.com/user-attachments/assets/5e21d88d-c9be-4c72-a3b5-9253b5394eb6)
 
 HI HI HI!!! 
 welcome to my gh!!!
