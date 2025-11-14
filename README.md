@@ -1,7 +1,6 @@
-![50](https://files.catbox.moe/mi6su5.gif)
+![51](https://files.catbox.moe/yqvmef.png)
 
 HI HI HI!!! 
-
 
 welcome to my gh!!!
 
