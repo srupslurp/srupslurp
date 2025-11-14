@@ -1,5 +1,4 @@
-![6](https://files.catbox.moe/ue04jm.png)
-
+![50](https://files.catbox.moe/mi6su5.gif)
 
 HI HI HI!!! 
 
