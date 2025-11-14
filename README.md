@@ -29,8 +29,7 @@ STRAWPAGE(S)!!
 
 - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
 
-- C+H is FULLY allowed! but be mindful when i have dniuf in my name i probably don't want to socialise with people idk! (ik i spelt that wrong i can't be botherd fixing it-)
-
+- C+H is FULLY allowed..i guess maybe??
   
 
 ╾━╤デ╦︻ (•_- )
