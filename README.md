@@ -1,5 +1,3 @@
-![12](https://files.catbox.moe/sbljub.png)
-
 ![18](https://files.catbox.moe/5j1ctr.png)
 
 HI HI HI!!! 
