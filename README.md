@@ -1,4 +1,6 @@
-![10](https://files.catbox.moe/yl7q57.gif)
+![12](https://files.catbox.moe/sbljub.png)
+
+![18](https://files.catbox.moe/5j1ctr.png)
 
 HI HI HI!!! 
 welcome to my gh!!!
