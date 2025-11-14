@@ -30,5 +30,5 @@ STRAWPAGE(S)!!
 - C+H is FULLY allowed..i guess maybe??
   
 
-╾━╤デ╦︻ (•_- )
+![Finally got into OWM after 2 years 🙏🙏](https://github.com/user-attachments/assets/809e13dd-1d52-4d1c-b971-af490ea397ff)
 
