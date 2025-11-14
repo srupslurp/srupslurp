@@ -1,7 +1,9 @@
-![18](https://files.catbox.moe/5j1ctr.png)
-![25](https://files.catbox.moe/zmb7u9.png)
 ![26](https://files.catbox.moe/srnlu6.gif)
+
+
 HI HI HI!!! 
+
+
 welcome to my gh!!!
 
 you can call me hunter
