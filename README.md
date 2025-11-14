@@ -28,5 +28,5 @@ STRAWPAGE(S)!!
 - C+H is FULLY allowed..i guess maybe??
   
 
-![download (37)](https://github.com/user-attachments/assets/06f2d30e-fd42-4213-858b-9a6546e99106)
+
 
