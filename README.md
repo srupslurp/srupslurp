@@ -28,5 +28,5 @@ STRAWPAGE(S)!!
 - C+H is FULLY allowed..i guess maybe??
   
 
-![Finally got into OWM after 2 years 🙏🙏](https://github.com/user-attachments/assets/809e13dd-1d52-4d1c-b971-af490ea397ff)
+![download (37)](https://github.com/user-attachments/assets/06f2d30e-fd42-4213-858b-9a6546e99106)
 
