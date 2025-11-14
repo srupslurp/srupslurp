@@ -1,4 +1,5 @@
-![Teen Spirit_      -            ⇨PART ONE_ people are strange !](https://github.com/user-attachments/assets/5e21d88d-c9be-4c72-a3b5-9253b5394eb6)
+![download (36)](https://github.com/user-attachments/assets/e8d33191-62d6-482b-9d1e-8173647b6dfc)
+
 HI HI HI!!! 
 welcome to my gh!!!
 
