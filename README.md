@@ -1,4 +1,5 @@
-![tlou banner](https://github.com/user-attachments/assets/dacb89dd-9847-4463-9cbb-4e47b03abaaa)
+![water rainbow Sticker - Find   Share on GIPHY](https://github.com/user-attachments/assets/5bffc38e-bfb4-4496-9ca1-da67743ac53c)
+
 HI HI HI!!! 
 welcome to my gh!!!
 
