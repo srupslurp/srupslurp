@@ -16,8 +16,6 @@ i LOVE following people's githubs..if i follow you its because i think ur cool!
 - you can find my strawpage below. it provides more infomation about me/fandoms and other things and all that jazz but majority of it is ALREADY here so read this if you cant be bothered!
 
 
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile) 
-
 STRAWPAGE(S)!! 
 
 - https://srupslurp.straw.page
