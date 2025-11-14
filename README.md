@@ -1,4 +1,4 @@
-![5](https://files.catbox.moe/m0tdnz.gif)![download (11)](https://github.com/user-attachments/assets/937ed4c4-da5c-4296-98f3-d0efbc588f53)
+![5](https://files.catbox.moe/m0tdnz.gif)!
 
 HI HI HI!!! 
 welcome to my gh!!!
