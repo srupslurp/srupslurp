@@ -23,15 +23,6 @@ STRAWPAGE(S)!!
 
 
 
-
-
-OTHER STUFF!
-- i have NO dni!!
-- thin ice though: extremely hyper religious people, people under 12, homophobic/transphobic people, racists
-
-- PLEASE INT! if you are in one of these fandoms: homestuck, haunted hotel, one wheat mark, rick and morty, amphibia, the owl house, zero day (no i don't romanticize school shootings wtf. I LIKE THE FILM FOR ITS ACTING!! i don't support the characters actions.), regretevator (dni 'retroslop' poob kins/fiction kins yall PMO so bad UNLESS you are close w me), wings of fire, warrior cats, southpark, helluva boss, inside job, tadc, httyd, spooky month, lackadaisy, stranger things and a LOT more but i lowk forgot most of them..
-
-
 ![b37f8f8fdf0b515b57194864dd3fa728](https://github.com/user-attachments/assets/f2b2fc7d-ea6f-4bf2-b3ea-07c81bd2778e)
 
 
