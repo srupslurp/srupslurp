@@ -1,5 +1,4 @@
-![download (9)](https://github.com/user-attachments/assets/1f663110-beb9-4ad0-883f-089117ba8499)
-
+![tlou banner](https://github.com/user-attachments/assets/dacb89dd-9847-4463-9cbb-4e47b03abaaa)
 HI HI HI!!! 
 welcome to my gh!!!
 
