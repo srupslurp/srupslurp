@@ -1,5 +1,4 @@
-![57](https://files.catbox.moe/dn88x8.gif)
-
+![6](https://files.catbox.moe/ue04jm.png)
 HI HI HI!!! 
 
 welcome to my gh!!!
@@ -30,5 +29,5 @@ STRAWPAGE(S)!!
 - C+H is FULLY allowed..i guess maybe??
   
 
-
+![6](https://files.catbox.moe/ue04jm.png)
 
