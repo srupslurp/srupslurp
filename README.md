@@ -21,7 +21,7 @@ i LOVE following people's githubs..if i follow you its because i think ur cool!
 STRAWPAGE(S)!! 
 
 - https://srupslurp.straw.page
-- https://yaaayquestions.straw.page 
+- https://yaaayquestions.straw.page (answering gimmicks one!!)
 
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3stiobril2k26hbegbae2ej6m&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile) 
 
@@ -29,7 +29,7 @@ STRAWPAGE(S)!!
 
 - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
 
-- C+H is FULLY allowed..i guess maybe??
+- C+H is FULLY allowed..unless i have dniuf in my name !!
   
 
 ![6](https://files.catbox.moe/ue04jm.png)
