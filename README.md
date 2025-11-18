@@ -1,5 +1,5 @@
 ![6](https://files.catbox.moe/ue04jm.png)
-![Profile view counter on GitHub]//komarev.com/ghpvc/?username=srupslurp)
+
 
 ༘˚⋆𐙚｡⋆𖦹.✧˚
 
