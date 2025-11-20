@@ -1,6 +1,6 @@
 ![6](https://files.catbox.moe/ue04jm.png)
 
-![Klebefieber_de](https://github.com/user-attachments/assets/2cda88d4-3912-4377-b20b-253a9e297987)
+![download (13)](https://github.com/user-attachments/assets/185bc5e3-e950-49b0-943a-214b1aa801dd)
 
 ![6](https://files.catbox.moe/ue04jm.png)
 
