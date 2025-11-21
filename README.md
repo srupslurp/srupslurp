@@ -1,7 +1,6 @@
 ![6](https://files.catbox.moe/ue04jm.png)
 
-![c1f32fd3b133d13c37c728fb444c96b7](https://github.com/user-attachments/assets/9743355d-b7e3-40e6-9cfb-89e7369868c8)
-
+![OIP (1)](https://github.com/user-attachments/assets/5b929de8-f7fe-4bfb-9a0c-5a5d692a92e5)
 ![6](https://files.catbox.moe/ue04jm.png)
 
 ༘˚⋆𐙚｡⋆𖦹.✧˚
