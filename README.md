@@ -28,7 +28,8 @@ i LOVE following people's githubs..if i follow you its because i think ur cool!
 - C+H is FULLY allowed..unless i have dniuf in my name !!
 
 - you can find me in the homestuck area 80% of the time. other times i'm somewhere random on the map.
-  
+
+  - main intrests at the moment: homestuck, ranfren, Law of Talos and Lapfox
 
 ![6](https://files.catbox.moe/ue04jm.png)
 
