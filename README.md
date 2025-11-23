@@ -1,7 +1,7 @@
 ![6](https://files.catbox.moe/ue04jm.png)
 ༘˚⋆𐙚｡⋆𖦹.✧˚
 
-welcome to my gh!!!
+# welcome to my gh!!!
 
 before i mention anything else i am NOT TCC!!!!!!
 
@@ -21,9 +21,13 @@ i LOVE following people's githubs..if i follow you its because i think ur cool!
 
 
 
-# - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
+# other random thing i wanna add
+
+- DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
 
 - C+H is FULLY allowed..unless i have dniuf in my name !!
+
+- you can find me in the homestuck area 80% of the time. other times i'm somewhere random on the map.
   
 
 ![6](https://files.catbox.moe/ue04jm.png)
