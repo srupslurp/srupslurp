@@ -1,16 +1,7 @@
 ![6](https://files.catbox.moe/ue04jm.png)
-
-![b6736e293f7b7929bb7a1ead516101c0](https://github.com/user-attachments/assets/396f72f9-8a31-4932-afc4-f40e847774cd)
-![6](https://files.catbox.moe/ue04jm.png)
-
 ༘˚⋆𐙚｡⋆𖦹.✧˚
 
 welcome to my gh!!!
-
-обычно в районе Homestuck. мне нужно больше русских друзей
-
-you can call me hunter
-
 
 before i mention anything else i am NOT TCC!!!!!!
 
@@ -18,10 +9,10 @@ i LOVE following people's githubs..if i follow you its because i think ur cool!
 
 - i am 80% of the time starring at my laptop screen on pony town and the other 20% either offtab or away from my keyboard..so w2i at all times or i wont see your messages bc im way to lazy to backread mssgs
 
-- you can find my strawpage below. it provides more infomation about me/fandoms and other things and all that stuff.,.,.,
+- you can find my strawpage below. it provides more infomation about me/fandoms and other things and all that stuff.,.,., but my pronouns page has some of the info i have in my strawpage in it..!!
 
 
-STRAWPAGE(S)!! 
+# STRAWPAGE(S)!! 
 
 - https://srupslurp.straw.page
 - https://yaaayquestions.straw.page (answering gimmicks one!!)
@@ -30,7 +21,7 @@ STRAWPAGE(S)!!
 
 
 
-- DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
+# - DON'T BE AFRIAD TO INT WITH ME! i need more pony town friends! D:
 
 - C+H is FULLY allowed..unless i have dniuf in my name !!
   
