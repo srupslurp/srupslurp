@@ -3,9 +3,7 @@
 
 # welcome to my gh!!!
 
-before i mention anything else i am NOT TCC!!!!!!
-
-i LOVE following people's githubs..if i follow you its because i think ur cool! 
+before i get started, please ignore peoples names on pony town with: 'ciel stop copying me' or 'ciel stop copying him' becasue you people are insufferable, i did NOT copy you brochacho this is very unnecessary. if you have issues with me, say it to my face. stop being pussies.
 
 - i am 80% of the time starring at my laptop screen on pony town and the other 20% either offtab or away from my keyboard..so w2i at all times or i wont see your messages bc im way to lazy to backread mssgs
 
