@@ -3,7 +3,7 @@
 
 # welcome to my gh!!!
 
-before i get started, please ignore peoples names on pony town with: 'ciel stop copying me' or 'ciel stop copying him' becasue you people are insufferable, i did NOT copy you brochacho this is very unnecessary. if you have issues with me, say it to my face. stop being pussies.
+before i get started, please ignore peoples names on pony town with: 'ciel stop copying me' or 'ciel stop copying him' because you people are insufferable, i did NOT copy your PIXELATED ponies brochacho. this is very unnecessary and frankly annoying to get your friends in on this. if you have issues with me, say it to my face. stop being a pussy.
 
 - i am 80% of the time starring at my laptop screen on pony town and the other 20% either offtab or away from my keyboard..so w2i at all times or i wont see your messages bc im way to lazy to backread mssgs
 
