@@ -27,7 +27,7 @@ before i get started, i just want to brag in favour of stranger things season fi
 
 - you can find me in the homestuck area 80% of the time. other times i'm somewhere random on the map.
 
-  - main intrests at the moment: homestuck, ranfren, Law of Talos and Lapfox
+  - main intrests at the moment: STRANGER THINGS !!!, homestuck, ranfren, Law of Talos and Lapfox
 
 ![6](https://files.catbox.moe/ue04jm.png)
 
